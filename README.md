@@ -1,1 +1,1 @@
-# sschool-cv
+# https://kpogotskaia.github.io/sschool-cv/cv
