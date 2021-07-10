@@ -1,1 +1,0 @@
-# sschool-cv
